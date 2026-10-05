@@ -1,0 +1,2 @@
+# premium-nephrite-carve-001-nephrite-carving-wet-grind-c
+Tired of juggling scattered notes, technique scribbles, and tool lists across a dozen places while trying to master the delicate art of nephrite carving? The Nephrite Carving &amp; Wet Grind Craft Lab consolidates your entire workflow into one organized Notion workspace, so you can focus on the grind.  This template solves the chaos of managing multipl
